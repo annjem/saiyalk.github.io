@@ -1,1 +1,3 @@
-I'm Saiya, a linguist, data scientist, and chess player. I co-host the Queen File podcast and give private and group chess lessons.
+I'm Saiya Karamali, PhD. I'm a linguist, data scientist, tournament chess player, and co-host of the [Queen File podcast](https://www.queenfile.com).
+
+I offer chess lessons in person in the London area or online geared towards beginner to intermediate level adults, kids, and groups. We'll identify your unique strengths and weaknesses, and I'll select master games and positions and create individualized strategies for you. If you're interested, please enquire via [email](mailto:saiya@saiyalk.com) for my availability and rates.
